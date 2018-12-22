@@ -1,2 +1,2 @@
 # uprgade-robot
-this is fps gaming sory i can t programing
+this is gra fps,przepraszam  nie  umiem programować
